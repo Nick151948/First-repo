@@ -1,2 +1,2 @@
 # First-repo
-I hope I win in fantasy foot ball this week!
+I hope I win in fantasy football this week!
